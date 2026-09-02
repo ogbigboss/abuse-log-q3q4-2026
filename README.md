@@ -1,4 +1,4 @@
-| Date | Dream speaker used | Disallowed continuous (6 hours+) sleep via dream speaker | Chemically / AC induced dry throat | Itching powder deployed |
+| Date | Dream speaker used | Disallowed continuous (6 hours+) sleep via dream speaker | Chemically / AC / Dehumidifier induced dry throat | Itching powder deployed |
 | ---- | ------------------ | -------------------------------------------------------- | ---------------------------------- | ----------------------- |
 | 8/27 | ☑️                 |                                                          |                                    |                         |
 | 8/28 | ☑️                 | ☑️                                                       |                                    |                         |
