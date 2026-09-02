@@ -52,9 +52,13 @@ I fear my abductors are doing this on purpose, feeling their NDA will cover them
 
 ### What my abductors are motivated by
 
-Nearly a week ago, I began openly suggesting that the goal of my abduction is to use fraud to eventually create an argument against the 1st Amendment, at least to coerce and manufacture consent against its usage on the internet if not more. I believe my abductors want to "show me who's in charge" by taking the wind from my throat.
+Nearly a week ago (today being 9/2), I began openly suggesting that the goal of my abduction is to use fraud to eventually create an argument against the 1st Amendment, at least to coerce and manufacture consent against its usage on the internet if not more. I believe my abductors want to "show me who's in charge" by taking the wind from my throat.
 
 Aside from the fact that I'm typing this - they will fail. **I will never shut up.**
+
+#### History repeats
+
+On 5/19/24, I shared a story of a car theft which likely destroyed one of my abductor's largest slanders about me. Two weeks later, they began a months long campaign of sleep deprivation with the dream speaker, all during a NY Bar legal discipline hearing. This is a direct reflection of what is happening now, with an added form of abuse that is more physical than psychological.
 
 ### My (hopeful) secret weapon
 
