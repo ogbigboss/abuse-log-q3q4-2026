@@ -1,3 +1,5 @@
+Note: All dates (so far) are in 2026 and generally refer to activities in the EST AM hours while I'm sleeping, but may imply PM activity.
+
 | Date | Dream speaker used | Disallowed continuous (6 hours+) sleep via dream speaker | Chemically / AC / Dehumidifier induced dry throat | Itching powder deployed |
 | ---- | ------------------ | -------------------------------------------------------- | ---------------------------------- | ----------------------- |
 | 8/27 | ☑️                 |                                                          |                                    |                         |
