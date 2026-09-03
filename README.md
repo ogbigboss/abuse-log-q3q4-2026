@@ -9,6 +9,7 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 | 8/31 | ☑️                 | ☑️                                                       | ☑️                                 |                         |
 | 9/1  | ☑️                 | ☑️                                                       | ☑️                                 |                         |
 | 9/2  | ☑️                 |                                                          | ☑️                                 |                         |
+| 9/3  | ☑️                 | ☑️                                                       | ☑️                                 |                         |
 
 
 
