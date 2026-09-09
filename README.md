@@ -15,7 +15,7 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 | 9/6  | ☑️                 |                                                          |                                    | ☑️                      |
 | 9/7  | ☑️                 |                                                          |                                    |                         |
 | 9/8  | ☑️                 | ☑️                                                       |                                    |                         |
-| 9/8  |                    |                                                          |                                    |                         |
+| 9/9  |                    |                                                          |                                    |                         |
 
 
 
