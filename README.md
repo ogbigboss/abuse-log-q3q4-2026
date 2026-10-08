@@ -43,6 +43,8 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 | 10/04 |                   |                                                          |                                    |                         |
 | 10/05 | ☑️                |                                                          |                                    |                         |
 | 10/06 | ☑️                |                                                          |                                    |                         |
+| 10/07 | ☑️                |                                                          |                                    |                         |
+| 10/08 |                   |                                                          |                                    |                         |
 
 
 ### Notes:
