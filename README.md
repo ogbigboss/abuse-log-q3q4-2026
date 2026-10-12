@@ -45,6 +45,9 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 | 10/06 | ☑️                |                                                          |                                    |                         |
 | 10/07 | ☑️                |                                                          |                                    |                         |
 | 10/08 |                   |                                                          |                                    |                         |
+| 10/09 |                   |                                                          |                                    |                         |
+| 10/10 | ☑️                |                                                          |                                    |                         |
+| 10/11 |                   |                                                          |                                    |                         |
 
 
 ### Notes:
@@ -53,6 +56,7 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 2. The "dry throat" is being caused with the AC, but not via just a cold temperature, as is somewhat natural. The first early morning I experienced this (8/29) and several days after the house was somewhat balmy at around 75, and even more implausibly during a humid time of year, a NJ August. I believe it is either a chemical being deployed into the vents or a dehumidifier working with a pipe system to target whatever room I'm in. I'll write about the experience at another time.
 3. Google AI suggests that [yes, itching powder in the vents](https://www.dropbox.com/scl/fi/tphhs7644cwyqhhp89ce3/Screenshot-2026-09-06-at-13.57.01.png?rlkey=qxhfnaqqyc36axb8cqffcqyup&dl=0) would be picked up by hair follicles moreso than other parts of the skin. This coudl explain why my parents are safer than I, but I've also never felt the "dry scalp" itch when I'm around them, or outside of this house.
 4. This abuse log does **NOT** contain data or info towards the potential elder abuse inflicted onto my parents by my abusers to which they are reforming royalty to avoid justice, please see separate essay on my abuser's reformation of royalty here: https://www.dropbox.com/scl/fi/bubq0dupt7hehnql3pz2w/2026-10-01-16-00-A-Society-of-Laws-and-Not-Lawyers.pdf?rlkey=kf0b1vhvfduu5ee3he02owivd&dl=0
+5. Starting somewhere in early October of '26, I started taking more marijuana edibles than I usually do before going to sleep. This has resulted in making the "dream speaker" far less noticeable, to my liking, though in the name of science - which requires _all_ data to be reviewable, implying data is never deleted even after results are found for the sake of further peer review, and a lack of that could be fraudulent concealment for some of yous but not me as I'm not the one doing medically unethical research - I figure I should include that tidbit here as the edibles may be manufacturing false negatives.
 
 ### Updates:
 
