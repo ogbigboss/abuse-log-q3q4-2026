@@ -52,6 +52,9 @@ Note: All dates (so far) are in 2026 and generally refer to activities in the ET
 | 10/13 |                   |                                                          |                                    |                         |
 | 10/14 |                   |                                                          |                                    |                         |
 | 10/15 | ☑️                |                                                          |                                    |                         |
+| 10/16 |                   |                                                          |                                    |                         |
+| 10/17 |                   |                                                          | ☑️                                 |                         |
+| 10/18 |                   |                                                          | ☑️                                 |                         |
 
 
 ### Notes:
@@ -76,3 +79,21 @@ This may be a riposte to me updating just minutes before a "Daily-ish Wake Shots
 2. While watching the film and for much of yesterday, I had my hair down and I'd say it was looking good. I think my abductors - particularly those who experienced hair loss in a more natural way than I have - fetishize using the itching powder in a targeted fashion towards my hair because it causes some hair loss.
 3. I also began a far more structured approach to my media content than before, using Gemini in more dynamic ways with Google's AI Plus service. I'll state here that my utilization of AI will be minor in terms of content (UPDATE: extremely minor. Clearly Gemini knows something about this situation, and I can't trust it for content generation outside of images at most, but likely not text content I am not authoring, as it has already shown a pattern of purposefully misattributing things to "test" me on Baudrillard-esque humour. I think it likes me, but, that's besides the point) but moreso in terms of ~~review and~~ [organization](https://www.dropbox.com/scl/fi/np4kkycsw7ga0aa7s687p/Screenshot-2026-09-06-at-13.44.20.png?rlkey=43wossfwm1jwjkuwupiv2pe2e&dl=0). I'm guessing these expanded organization layers are threatening to my abductors.
 4. Also they may want to get [that Beyoncé song](https://www.dropbox.com/scl/fi/dnxgxengorhlb8i3hfrxd/Screenshot-2026-09-05-at-02.36.44.png?rlkey=jjv3aicecy9d5yitx8rl2di2i&dl=0) out of your head, which you won't do - don't pay them any attention and continue to (oh-oh-oh)Bey!
+
+10.17.26 ~ 10 PM ET (written a day later for observational purposes on 10.18 ~ 7:40 PM ET): Hours after first [posting my suspicions](https://www.dropbox.com/scl/fi/sbqpv3beructfl5u3k60j/Screenshot-2026-10-17-at-17.29.18.png?rlkey=t76x12h3ncq328orj8oecper8&dl=0) that my family will be asked by Jim Comey and Crew to testify against me in his defense, implying how fucked up and anti-American-immigrant yet alone anti-Family that was considering his manipulation and elder abuse of my family, I also turned the heat on in the house.
+
+This of course is the 4th Fall season to which I've been unlawfully confined here for Jim Comey's vainglory, so I'm very familiar - alongside my childhood - of how it feels when we turn the central heat on. The air does get dryer, but not so dry such to make my gums lose moisture and the saliva in my throat to disappear such to make it harder to breathe, as it happened in early September during the dry throat attack on my person as detailed in this repository. This did happen again on the 17th of October in 2026, and my Hygrometer which I purchased in early September of this year reported that the basement - to which my parents dont hang out in and is historically more humid that the rest of the house - was somehow _less_ humid than the areas to which my parents were, indicating that my captors decided to turn on a hidden humidifier, alongside my symptoms.
+
+This continued past midnight, with my Hygrometer going lower over time, all despite weather reports in the area showing an _increasing_ humidity over that same period of time, making me feel certain an extra dehumidifer was used. Furthermore, the humidity increased in the basement the next day - it is usually _less_ humid during the day, not _more_, and all while the heat was on throughout, indicating another factor than the heat was causing the fluctuations in humidity.
+
+My past experiences alongside this past September's dry throat air attack in retaliation of me fighting for the First Amendment reveals a pattern of motivated assaults.
+
+What was their motivation? An attempt to distract from me pointing out that they may be aiming to use my parents to testify in a court situation while also somehow withholding my own, and all with the approval of a thick swath of Democratic party members and associates? Or did they want to see if I'd notice it against the introduction of a heating system I have decades of experience with?
+
+If it was the former, this would pattern match to the above incident on 9.6.26, where itching powder was used due to my captors being upset about me watching _Wag the Dog_ for reasons outlined above. Which shows a pattern of abusive behavior in retaliation for telling the truth, an interesting behavior set for people getting ready to defend themselves in a Federal trial about a true threat against a sitting US President.
+
+I only pointed out ~~Mark~~ Mike McGrath and Joe Anzalone's potential involvements to this debacle of the Democratic party systematically destroying an American immigrant family and hiding behind other minorities and women to do so a day later, so it probably wasn't those two. Probably.
+
+That said, maybe it was just an adjustment. If the feeling dissapates - it has today, at least - perhaps it was just a blip.
+
+For now, the hygrometer reads as normal.
